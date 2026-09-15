@@ -1,0 +1,1 @@
+# Info-clasa-10-a
